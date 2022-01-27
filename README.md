@@ -10,3 +10,7 @@ This has scared me, excited me, made me laugh, made my cry-Just a whole range of
 So when I think about my time here at UNI, and the memories, and my finals I have taken over the last two years of my life at UNI..
 
 >"We'll Always Have Paris" 
+#Help me Find It
+I can't do this on my own, help me **FIND** it. 
+So when I go home, the world will **end** 
+Fin. 
